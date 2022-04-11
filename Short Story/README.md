@@ -1,4 +1,4 @@
-Medium Article Link:
+Medium Article Link: https://rajviishah.medium.com/detection-of-covid-19-using-deep-learning-c3d46732950b
 
 
 
