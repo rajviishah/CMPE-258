@@ -6,4 +6,4 @@ Slideshare Link: https://www.slideshare.net/RajviShah86/cmpe-258-short-story-ppt
 
 
 
-Video Link: 
+Video Link: https://drive.google.com/file/d/1gmVkOMvTPaCWq5nQ2web-BRr9yDsxapl/view?usp=sharing
